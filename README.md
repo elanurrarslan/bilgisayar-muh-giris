@@ -5,4 +5,4 @@ https://<elanurrarslan>.github.io/bilgisayar-muh-giris/
 ELANUR ARSLAN - 16008121088
 
 Ekip Arkadaşları
-iremnur Sebü - 16008124071
+İrem Nur Sebü - 16008124071
